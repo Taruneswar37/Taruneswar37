@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 Final Year B.Tech Student | AI and Automation Enthusiast | Machine Learning | Deep Learning | GenAI | Data Science | Data Analytics<br><br> 📫 How to reach me: taruneswartharan@gmail.com<br><br>⚡ Fun fact: Positive approach on everything
+🌱 Final Year B.Tech Student and Complete nano degree in GenAI<br><br>  AI and Automation Enthusiast | Machine Learning | Deep Learning | GenAI | Data Science | Data Analytics<br><br> 📫 How to reach me: taruneswartharan@gmail.com<br><br>⚡ Fun fact: Positive approach on everything
 
 
 ## 🌐 Socials:
