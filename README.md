@@ -1,5 +1,5 @@
 # About Me:
-Final Year B.Tech Student and Completed Nano Degree in GenAI<br>  AI and Automation Enthusiast | Machine Learning | Deep Learning | GenAI | Data Science | Data Analytics<br><br> 📫 How to reach me: taruneswartharan@gmail.com<br><br>⚡ Fun fact: Positive approach on everything
+Final Year B.Tech Student and Completed Nano Degree in GenAI<br>  AI and Automation Enthusiast | Machine Learning | Deep Learning | GenAI | Data Science | Data Analytics<br> 📫 Email: taruneswartharan@gmail.com <br>Contact: +91 8778665269<br> Fact I Belive: Creativity is Just Connecting Things
 
 
 ## Socials:
